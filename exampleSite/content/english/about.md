@@ -12,8 +12,8 @@ I setup this web blog to document my spiritual journey
 
 Here is my personal vision statement:
 
-I become a certified Divine Healing Technician
+To become a certified Divine Healing Technician
 
-to operate in the fullness of the Holy Spirit and be effective in doing the Father's business.
+to operate in the fullness of the Holy Spirit and be effective in doing my Father's business.
 
 Learn more about me on [GitHub](https://github.com/LayMui/).
