@@ -27,9 +27,9 @@ An analogy: It could not take much faith for my children to come and ask me for 
 If my children come to me and say 'Dad, I know you got the money but I am not sure if You love me
 enough and you let me have it.
 If my children talk to me that way, it breaks my heart.
-Surely you know Me me by me. If I got it, you'll have it.
+Surely you know Me me by now. If I got it, you'll have it.
 The last thing you should question is His willingness.
-All the promise of God is Yes and Amen in Christ 2Cor1:20
+**All the promise of God is Yes and Amen in Christ 2Cor1:20**
 
 I used to think Jesus is telling me to work towards their faith to have great faith
 What I realised from this video 8 teaching
