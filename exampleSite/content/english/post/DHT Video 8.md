@@ -36,4 +36,4 @@ What I realised from this video 8 teaching
 is when I have a relationship with God, faith is not even a question.
 I do not need great faith all I need is faith of a mustard seed and God has given each of us
 a measure of faith and that faith is Jesus's faith and I have Jesus' faith cos He is in me
-and I in Him. That faith is already inherited in that relationship.
+and I in Him. That faith is already inherent in that relationship.
