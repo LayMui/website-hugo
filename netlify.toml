@@ -6,7 +6,7 @@
   HUGO_VERSION = "0.69.0"
   HUGO_ENV = "production"
   HUGO_THEME = "repo"
-  HUGO_BASEURL = "https://anatole-demo.netlify.app"
+  HUGO_BASEURL = "https://kind-euclid-df7a65.netlify.app/"
 
 [[headers]]
   for = "/*"
