@@ -8,13 +8,12 @@ author = "LayMui"
 
 My name is Lay Mui Toh
 
-I setup this web blog to document my spiritual journey 
+I setup this web blog to document my spiritual journey
 
-Here is my personal vision statement: 
+Here is my personal vision statement:
 
-I become a certified Divine Healing Technician 
+I become a certified Divine Healing Technician
 
 to operate in the fullness of the Holy Spirit and be effective in doing the Father's business.
-
 
 Learn more about me on [GitHub](https://github.com/LayMui/).
