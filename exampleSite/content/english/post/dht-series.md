@@ -2,21 +2,16 @@
 author: Hugo Authors
 title: DHT 201 Series
 date: 2022-01-09
-description: A DHT Training Series 
+description: A DHT Training Series
 series:
   - series-setup
-
---- 
-
+---
 
 In this first part of the series we'll show you how to do DHT
 
 <!--more-->
 
-
 Go to [DHT 201 Series](https://dht-201.vercel.app).
-
-
 
 ```md
 ---
