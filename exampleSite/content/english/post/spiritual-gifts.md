@@ -28,6 +28,9 @@ In 1 Cor 13 there is a more excellent way which is love and it's encompass
 fruits of the Holy Spirit described in Galatians 5:22
 If I operate in the fullness of the Holy Spirit, all the gifts are there
 
+__It's only when I am aware of and participating in the love of God has for me that
+I can actually grow to our full mature stature as a believer__
+
 When you have the Giver (Holy Spirit) within you, you do not need to ask God for spiritual gifts
 If you know who are in Christ, you let the life of God flow out of you.
 From the abundance of the heart, the mouth speaks
@@ -35,3 +38,5 @@ Your spirit is right perfect, the only way for the spirit to relate to people ar
 becos the soul has to form the words, the ideas and take things of the spirit
 There has to be a connectionn between the Spirit, Soul and Body.
 Many people's problems is their mind not renewed and tainted by religion and unbelief
+
+
