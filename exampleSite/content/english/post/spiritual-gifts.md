@@ -17,8 +17,8 @@ To the carnal church. he give the most description of gifts of the Holy Spirit
 but the church does the opposite 'If I pray/fast long enough, maybe God'll give me a gift'
 
 The more spiritual you are, the less gifts you need. Why?
-Becos the more carnal you are, God has to show up with the burst of power/gifts of the Holy Spirit 
-to make up what you lack. 
+Becos the more carnal you are, God has to show up with the burst of power/gifts of the Holy Spirit
+to make up what you lack.
 
 You can be healed by gift (it happen right then) and a gift is given
 
