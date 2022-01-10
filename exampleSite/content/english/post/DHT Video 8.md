@@ -40,7 +40,7 @@ I do not need great faith all I need is faith of a mustard seed and God has give
 a measure of faith and that faith is Jesus's faith and I have Jesus' faith cos He is in me
 and I in Him. That faith is already inherent in that relationship.
 
-__Lesson learnt__
+**Lesson learnt**
 The people of Israel said come but the Roman centurion said just speak -
 A non covenant person has greater faith than a covenant person & yet a non covenant person
 need greater faith than a covenant person. We as covenant people should have the greatest faith possible
