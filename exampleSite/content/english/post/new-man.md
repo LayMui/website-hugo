@@ -12,4 +12,3 @@ newMan= "images/fruits.jpeg"
 +++
 
 Know who are you in the New Man
-
