@@ -17,7 +17,7 @@ Hebrew 12:2 Looking unto Jesus the Author and Finisher of our faith
 
 Jesus is object of faith.
 
-The bible faith is not rooted in things. 
+The bible faith is not rooted in things.
 It's rooted in JESUS
 
 If you have trouble with faith, you are having trouble with the revelation of Jesus.
@@ -49,8 +49,8 @@ Alot of times we are trying to put faith in things but are not putting faith in 
 
 When you put faith in the Healer (Jesus), healing come as a byproduct.
 
-The people came to Jesus because they has faith in Him as the Healer 
-and they were not exercising the faith 
+The people came to Jesus because they has faith in Him as the Healer
+and they were not exercising the faith
 so much in healing but the Healer.
 
 A faith problem is always a relationship problem. 
