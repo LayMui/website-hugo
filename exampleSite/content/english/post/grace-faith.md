@@ -53,7 +53,7 @@ The Law is based on commands to be achieved
 
 The New Covenant is based upon promises to be believed
 
-You are not called to achieve natural results. 
+You are not called to achieve natural results.
 
 You can produce natural result but this is not going to last
 
@@ -61,7 +61,7 @@ Spiritual reality is what going to last and your faith brings it into manifestat
 
 John 15:5 Jesus said 'I am the Vine and you're the branches. Apart from Me you can do nothing'
 
-So often we try to get things mixed up. 
+So often we try to get things mixed up.
 
 We try to be the vine and we want the Lord to be our branches
 

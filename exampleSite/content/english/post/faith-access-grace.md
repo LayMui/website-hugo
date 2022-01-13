@@ -43,8 +43,7 @@ Be removed and be cast into the sea and does not doubt in his heart but
 
 believes those things he says will be done. he'll have whatever he says
 
-
-Zechariah 4:7 says Who are you O great mounntain? 
+Zechariah 4:7 says Who are you O great mounntain?
 
 Before Zerubbabel you shall become a plain.
 
