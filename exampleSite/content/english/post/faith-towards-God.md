@@ -17,20 +17,19 @@ Hebrew 12:2 Looking unto Jesus the Author and Finisher of our faith
 
 Jesus is object of faith.
 
-The bible faith is not rooted in things. It's rooted in JESUS
+The bible faith is not rooted in things. 
+It's rooted in JESUS
 
 If you have trouble with faith, you are having trouble with the revelation of Jesus.
 
 Alot of people are trying to look to their faith. Do I have enough faith to get what
-
 I need to do? When you look at faith, faith shrivels under it's own inspection
 
 The time faith becomes robust than ever is when you get a vision of the grace of God
-
 and the vision of the Lord Jesus Christ
 
 Faith just comes out and grabs hold of it and you are not even focusing on faith
-that's when your faith is strongest - When you have no focus onn it. The focus is on **Jesus**
+that's when your faith is strongest - When you have no focus on it. The focus is on **Jesus**
 
 You get a revelation of Him and His grace. Faith is not a problem.
 
