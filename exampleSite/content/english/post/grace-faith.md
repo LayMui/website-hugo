@@ -60,7 +60,7 @@ I have a hanger with picture and the word 'Do your best, God will do the rest'.
 
 I realise this message comes from false teaching.
 
-God wants of you and me is to rest completely in His finished work on the Cross. 
+God wants of you and me is to rest completely in His finished work on the Cross.
 
-His Grace is His provision for all 
+His Grace is His provision for all
 of our needs and we just need faith to access it.
