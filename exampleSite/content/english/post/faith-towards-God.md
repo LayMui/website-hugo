@@ -30,10 +30,9 @@ The time faith becomes robust than ever is when you get a vision of the grace of
 and the vision of the Lord Jesus Christ
 
 Faith just comes out and grabs hold of it and you are not even focusing on faith
-
 that's when your faith is strongest - When you have no focus onn it. The focus is on **Jesus**
 
-You get a revelationn of Him and His grace. Faith is not a problem.
+You get a revelation of Him and His grace. Faith is not a problem.
 
 Jesus is the source and object of biblical faith.
 
@@ -43,15 +42,15 @@ There are 3 steps to a victorious Christian life:
 3. Keep on looking at Jesus.
 
 Romans 8:32 He who did not spare His own Son but delivered Him up for us all
-
 How shall He not with Him freely give you all things.
 
 When you get a revelation of Him then you have a revelation that everything else comes with Him.
-
-Alot of times we are trying to put faith in things but are not putting gaith in the Person of Jesus.
+Alot of times we are trying to put faith in things but are not putting faith in the Person of Jesus.
 
 When you put faith in the Healer (Jesus), healing come as a byproduct.
-THe people came to Jesus becgiause they has faith in Him as the Healder and they were not exercising the faith 
+
+The people came to Jesus because they has faith in Him as the Healer 
+and they were not exercising the faith 
 so much in healing but the Healer.
 
-A faith problem is always a relationship problem.  Selah.
+A faith problem is always a relationship problem. 
