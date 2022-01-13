@@ -38,6 +38,7 @@ You get a revelationn of Him and His grace. Faith is not a problem.
 Jesus is the source and object of biblical faith.
 
 There are 3 steps to a victorious Christian life:
+
 1. Look at Jesus
 2. Keep looking at Jesus
 3. Keep on looking at Jesus.
@@ -51,7 +52,7 @@ When you get a revelation of Him then you have a revelation that everything else
 Alot of times we are trying to put faith in things but are not putting gaith in the Person of Jesus.
 
 When you put faith in the Healer (Jesus), healing come as a byproduct.
-THe people came to Jesus becgiause they has faith in Him as the Healder and they were not exercising the faith 
+THe people came to Jesus becgiause they has faith in Him as the Healder and they were not exercising the faith
 so much in healing but the Healer.
 
-A faith problem is always a relationship problem.  Selah.
+A faith problem is always a relationship problem. Selah.
