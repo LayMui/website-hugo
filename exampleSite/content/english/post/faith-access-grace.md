@@ -11,7 +11,7 @@ grace= "images/grace.png"
 
 +++
 
-## Faith accesses Grace
+## Faith access Grace
 
 # Mark 11:23
 
@@ -46,7 +46,7 @@ believes those things he says will be done. he'll have whatever he says
 
 Zechariah 4:7 says Who are you O great mounntain? 
 
-Before Zarubbabel you shall become a plain.
+Before Zerubbabel you shall become a plain.
 
 You will be removed.
 
@@ -59,7 +59,6 @@ Genuine faith is always based on grace.
 If it's not, it's fake faith.
 
 Fake faith is you trying to produce stuff with your faith and is not connected 
-
 with what Jesus has already done.
 
 Biblical faith is always toward God.
