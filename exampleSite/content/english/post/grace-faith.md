@@ -1,6 +1,6 @@
 +++
 author = "LayMui"
-title = "Grace-Faith are married"
+title = "Grace and Faith are married"
 date = "2022-01-13"
 description = "eCharis Term 2 The Fundamentals of Faith"
 tags = [
@@ -48,14 +48,19 @@ God is not interested in making up your rest.
 
 He is interested in you resting in what He has already made or done.
 
-You need to understand that we need to operate towrds God 100% of the time by **Grace Thro Faith**
+You need to understand that we need to **operate towards God 100% of the time by Grace Thro Faith**
 
 The Law is based on commands to be achieved
 
-The New Covenant is vased upon promises to be believed
+The New Covenant is based upon promises to be believed
 
-I have a hanger with picture and the word 'Do your best, God will do the rest'. This I know comes from false teaching.
-God wants of you and me is to rest completely in His finished work on the Cross. His Grace is His provision for all 
+I have a hanger with picture and the word 'Do your best, God will do the rest'.
+
+I realise this message comes from false teaching.
+
+God wants of you and me is to rest completely in His finished work on the Cross. 
+
+His Grace is His provision for all 
 of our needs and we just need faith to access it.
 
 
