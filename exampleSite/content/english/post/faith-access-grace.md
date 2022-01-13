@@ -10,7 +10,9 @@ tags = [
 grace= "images/grace.png"
 
 +++
+
 ## Faith accesses Grace
+
 # Mark 11:23
 
 Grace must be accessed
@@ -35,7 +37,7 @@ What is the bar? Faith
 
 What is the force that uses faith? Grace
 
-Mark 11:23 For assuredly I say to you, whoever says to this mountain. 
+Mark 11:23 For assuredly I say to you, whoever says to this mountain.
 
 Be removed and be cast into the sea and does not doubt in his heart but
 

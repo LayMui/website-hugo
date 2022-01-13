@@ -10,6 +10,7 @@ tags = [
 grace= "images/grace.png"
 
 +++
+
 ## The Message to Laodicea
 
 I know thy _works_, that thou art neither cold nor hot: I would thou art
@@ -76,4 +77,3 @@ God wants of you and me is to rest completely in His finished work on the Cross.
 
 His Grace is His provision for all
 of our needs and we just need faith as a mean to receiving God's grace.
-
