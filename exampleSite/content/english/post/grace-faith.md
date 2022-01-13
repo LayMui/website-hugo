@@ -10,10 +10,12 @@ tags = [
 gifts= "images/grace.png"
 
 +++
-### The Message to Laodicea
-I know thy *works*, that thou art neither cold nor hot: I would thou art
 
-cold or hot. So then because thou art lukewarm, and neither cold nor hot, 
+### The Message to Laodicea
+
+I know thy _works_, that thou art neither cold nor hot: I would thou art
+
+cold or hot. So then because thou art lukewarm, and neither cold nor hot,
 
 I will spew thee out of my mouth.
 
@@ -28,13 +30,13 @@ You are trying to live under the commandments.
 
 What the law is going to do? It's going to drive you to your knee.
 
-It's going to condemnn you. 
+It's going to condemnn you.
 
-You're going to say. God I need grace. And so the law will do its work 
+You're going to say. God I need grace. And so the law will do its work
 
-if you are purely going to be under the law. 
+if you are purely going to be under the law.
 
-The problem is when you mix the two. 
+The problem is when you mix the two.
 
 Just like oil and water do not mix
 
@@ -42,7 +44,7 @@ And you part grace and say 'Lord, I'm going
 
 to try to work for you and everything I can and achieve and then whenever I miss it.
 
-Lord, You make up the rest. 
+Lord, You make up the rest.
 
 God is not interested in making up your rest.
 
@@ -62,6 +64,3 @@ God wants of you and me is to rest completely in His finished work on the Cross.
 
 His Grace is His provision for all 
 of our needs and we just need faith to access it.
-
-
-
