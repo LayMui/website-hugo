@@ -54,3 +54,17 @@ and they were not exercising the faith
 so much in healing but the Healer.
 
 A faith problem is always a relationship problem. 
+You'll always struggle in faith if you do not know or doubt the **love of God towards you**
+that's why eCharis teach alot on this - God's love
+
+The New Covenant in a based o na trusting relationship with Jesus.
+That's what Christianity is - It's a relationship with Jesus
+
+There are many Christians living under rules and codes and they do not have a relationship
+with God and that's why they struggle in their faith.
+
+If you have trouble receiving something you are believing for, go back and spend time
+with Jesus and refresh your mind on His character, nature and love for you.
+
+Key message: A faith problem is always a relationship problem.
+
