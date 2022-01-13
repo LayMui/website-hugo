@@ -36,6 +36,7 @@ You get a revelation of Him and His grace. Faith is not a problem.
 Jesus is the source and object of biblical faith.
 
 There are 3 steps to a victorious Christian life:
+
 1. Look at Jesus
 2. Keep looking at Jesus
 3. Keep on looking at Jesus.

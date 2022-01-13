@@ -57,7 +57,7 @@ Genuine faith is always based on grace.
 
 If it's not, it's fake faith.
 
-Fake faith is you trying to produce stuff with your faith and is not connected 
+Fake faith is you trying to produce stuff with your faith and is not connected
 with what Jesus has already done.
 
 Biblical faith is always toward God.
