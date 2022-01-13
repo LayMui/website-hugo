@@ -21,7 +21,6 @@ I will spew thee out of my mouth.
 As I listen to the teaching on Fundamentals of Faith by Rick Mcfarland
 
 it said if you operating purely in grace and faith, that's where God wants
-
 your relationship that's being hot towards God
 
 What is cold? That's where everything you are doing is trying to perform for God.
@@ -32,7 +31,6 @@ What the law is going to do? It's going to drive you to your knee.
 It's going to condemnn you.
 
 You're going to say. God I need grace. And so the law will do its work
-
 if you are purely going to be under the law.
 
 The problem is when you mix the two.
@@ -40,7 +38,6 @@ The problem is when you mix the two.
 Just like oil and water do not mix
 
 And you part grace and say 'Lord, I'm going
-
 to try to work for you and everything I can and achieve and then whenever I miss it.
 
 Lord, You make up the rest.
@@ -54,6 +51,22 @@ You need to understand that we need to **operate towards God 100% of the time by
 The Law is based on commands to be achieved
 
 The New Covenant is based upon promises to be believed
+
+You are not called to achieve natural results. 
+
+You can produce natural result but this is not going to last
+
+Spiritual reality is what going to last and your faith brings it into manifestation and it is called fruits
+
+John 15:5 Jesus said 'I am the Vine and you're the branches. Apart from Me you can do nothing'
+
+So often we try to get things mixed up. 
+
+We try to be the vine and we want the Lord to be our branches
+
+No. the Lord is the Vine and we are the branches
+
+you are a pitiful vine but a beautiful branches.
 
 I have a hanger with picture and the word 'Do your best, God will do the rest'.
 

@@ -32,6 +32,7 @@ An analogy: I use a crowbar to move a big boulder
 There was a force behind it moving it.
 
 What is the bar? Faith
+
 What is the force that uses faith? Grace
 
 Mark 11:23 For assuredly I say to you, whoever says to this mountain. 
@@ -39,3 +40,24 @@ Mark 11:23 For assuredly I say to you, whoever says to this mountain.
 Be removed and be cast into the sea and does not doubt in his heart but
 
 believes those things he says will be done. he'll have whatever he says
+
+
+Zechariah 4:7 says Who are you O great mounntain? 
+
+Before Zarubbabel you shall become a plain.
+
+You will be removed.
+
+And he shall bring forth the capstone with shouts of **Grace, grace to it**
+
+So grace is going to be the force that faith uses.
+
+Genuine faith is always based on grace.
+
+If it's not, it's fake faith.
+
+Fake faith is you trying to produce stuff with your faith and is not connected 
+
+with what Jesus has already done.
+
+Biblical faith is always toward God.
