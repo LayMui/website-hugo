@@ -70,10 +70,10 @@ Faith can only receive what Grace has already provided.
 
 Grace has already provided in the unseen realm.
 
-That is where the rub comes. It's that what God is provided is not manifested automatically 
+That is where the rub comes. It's that what God is provided is not manifested automatically
 in the natural world. It's in the Spirit. It's in Christ. It's in the born again spirit
 In the spiritual realm.
-it's there but you cannot detect it with your 5 senses. 
+it's there but you cannot detect it with your 5 senses.
 So what have to walk by faith and not by sight
 -This is the demarcation from immaturity to maturity.
 You are not moved by your 5 senses
