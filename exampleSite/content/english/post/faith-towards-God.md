@@ -53,7 +53,7 @@ The people came to Jesus because they has faith in Him as the Healer
 and they were not exercising the faith
 so much in healing but the Healer.
 
-A faith problem is always a relationship problem. 
+A faith problem is always a relationship problem.
 You'll always struggle in faith if you do not know or doubt the **love of God towards you**
 that's why eCharis teach alot on this - God's love
 
@@ -67,4 +67,3 @@ If you have trouble receiving something you are believing for, go back and spend
 with Jesus and refresh your mind on His character, nature and love for you.
 
 Key message: A faith problem is always a relationship problem.
-
