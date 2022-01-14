@@ -67,3 +67,22 @@ Grace is the initiator.
 Grace is God's part
 Faith is man's part.
 Faith can only receive what Grace has already provided.
+
+Grace has already provided in the unseen realm.
+
+That is where the rub comes. It's that what God is provided is not manifested automatically 
+in the natural world. It's in the Spirit. It's in Christ. It's in the born again spirit
+In the spiritual realm.
+it's there but you cannot detect it with your 5 senses. 
+So what have to walk by faith and not by sight
+-This is the demarcation from immaturity to maturity.
+You are not moved by your 5 senses
+You are moved by God's Word and what you see in God's Word.
+You are moved by your inward eyes or the eyes of your heart.
+
+Religion faith is when I see, I will believe it
+Bible faith is when I **believe** I will see it.
+
+You are called to believe and receive
+Your title is **Believer**
+Your Job Description is to believe
