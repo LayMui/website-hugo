@@ -61,3 +61,9 @@ Fake faith is you trying to produce stuff with your faith and is not connected
 with what Jesus has already done.
 
 Biblical faith is always toward God.
+
+Grace always comes before Faith
+Grace is the initiator. 
+Grace is God's part
+Faith is man's part.
+Faith can only receive what Grace has already provided.
