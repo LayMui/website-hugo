@@ -21,6 +21,7 @@ If you love death, speak it and You'll eat it.
 If you love life, speak it and You'll eat it.
 
 Speak: I am wealthy, I am healthy, I am wise. I am good looking.
+**Speak it till you believe it**
 
 Matthew 15:11 Not what goes into the mouth defiles a man but what comes out of the mouth
 this defiles a man.
