@@ -35,14 +35,14 @@ And you wonder why you cannot get free from that long term debiliting thing that
 your life.
 Why are you punishing yourself for what Jesus was punished for? That's pride.
 
-There is a confession of faith. 
+There is a confession of faith.
 
 This is releasing our faith by our words
 
-There is a confession unto faith. 
+There is a confession unto faith.
 This is hearing the Word so we come to a place of persuasion
 
-We don't need to confess the Word of God. 
+We don't need to confess the Word of God.
 He's already persuaded. He also has already provided
 
 Speaking in the wrong direction
