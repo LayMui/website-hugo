@@ -40,11 +40,7 @@ I lay hand on the sick, it's not me.
 It's Christ in me the hope of Glory that is going to flow out of me in a life
 flow that is going to bring healing into somebody else's life.
 
-<<<<<<< HEAD
 You do not have to battle with this 'God. You've to show up thing'
-=======
-You do not have to battle with this: 'God. You've to show up thing'
->>>>>>> 9c6acab97aadafd90d2ff7af086336df5f72f7a5
 
 Let the love of God be your motivation.
 
