@@ -27,19 +27,18 @@ Do you see yourself as the dwelling place of God on earth?
 
 You are the Temple of the Holy Spirit
 
-When I am ministering to someone and I am abot to lay hands on them.
+When I am ministering to someone and I am about to lay hands on them.
 
 I do not think Oh God if you don't come down and show up right now. I am sunk.
 
-No What I know is \*\*My sufficienty is not of myself so the Holy Spirit in me
-
+No What I know is **My sufficiency is not** of myself so the Holy Spirit in me
 is going to flow freely becos I recognize the glory of God.
 
 I am acknowledging what is in me Philemons 4-6
 
 I am acknowleging that good thing that is in me so when
 
-I lay hand on the sick, I know about all people it's not me
+I lay hand on the sick, it's not me
 
 It's Christ in me the hope of Glory that is going to flow out of me in a life
 
