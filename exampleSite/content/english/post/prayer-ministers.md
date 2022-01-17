@@ -40,7 +40,11 @@ I lay hand on the sick, it's not me.
 It's Christ in me the hope of Glory that is going to flow out of me in a life
 flow that is going to bring healing into somebody else's life.
 
+<<<<<<< HEAD
 You do not have to battle with this 'God. You've to show up thing'
+=======
+You do not have to battle with this: 'God. You've to show up thing'
+>>>>>>> 9c6acab97aadafd90d2ff7af086336df5f72f7a5
 
 Let the love of God be your motivation.
 
@@ -58,17 +62,12 @@ Jesus demonstrated the compassion all the time in His earthly ministry
 Everytime Jesus moved with compassion you saw a supernatural manifestation of the power of God.
 
 Psalm 91: the bridge to miracle is in the secret place.
-
 In that secret place where you hide under the shadow of the Almighty
 
 In that place of intimacy in your relationship with Jesus that is where
-
 you'll find the power and glory and the miracles.
-
 You don't search for miracles. They are part of our relationship with Him.
-
 As prayer ministers, you're here becos you want to experience God.
-
 You want to see God move, you want to see God touch people through you.
 
 This is the calling that God has for us -
