@@ -18,13 +18,9 @@ It's Christ in me, the hope of glory
 # 2 Corinthians 3:4-6
 
 And we have such trust through Christ toward God
-
 Not that we are sufficient of ourselves to think of anything
-
 as being from ourselves, but our sufficiency is from God who
-
 also made us sufficient as ministers of the new covenant not of the letter
-
 but of the Spirit: for the letter kills but the Spirit gives Life.
 
 Do you see yourself as the dwelling place of God on earth?
