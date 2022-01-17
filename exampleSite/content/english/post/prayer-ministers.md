@@ -41,12 +41,11 @@ I am acknowleging that good thing that is in me so when
 I lay hand on the sick, it's not me
 
 It's Christ in me the hope of Glory that is going to flow out of me in a life
-
 flow that is going to bring healing into somebody else's life.
 
-You do not have to battle with this God. You've to show up thing.
+You do not have to battle with this:  'God. You've to show up thing'
 
-Let your motivation be the love of God
+Let the love of God be your motivation.
 
 Jesus didn't come to help us to manage our sickness but He came to take it away.
 
