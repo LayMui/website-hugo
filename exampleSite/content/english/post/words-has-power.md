@@ -4,7 +4,7 @@ title = "The importance of our words"
 date = "2022-01-14"
 description = "eCharis Term 2 The Fundamentals of Faith"
 tags = [
-    "faith", "word", 
+    "thumbnail", "faith", "word", 
 ]
 
 +++

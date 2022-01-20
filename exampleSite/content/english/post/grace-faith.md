@@ -4,10 +4,10 @@ title = "Grace and Faith are married"
 date = "2022-01-13"
 description = "eCharis Term 2 The Fundamentals of Faith"
 tags = [
-    "faith", "grace", "revelation"
+    "thumbnail", "faith", "grace", "revelation"
 ]
 
-grace= "images/grace.png"
+thumbnail= "images/faith.jpeg"
 
 +++
 

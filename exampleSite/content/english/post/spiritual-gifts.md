@@ -4,10 +4,10 @@ title = "Spiritual Gifts"
 date = "2022-01-10"
 description = "Spiritual Gifts (DHT Video 8)"
 tags = [
-    "gifts", "spiritual maturity"
+    "thumbnail", "gifts", "spiritual maturity"
 ]
 
-gifts= "images/fruits.jpeg"
+thumbnail= "images/fruit.jpeg"
 
 +++
 
