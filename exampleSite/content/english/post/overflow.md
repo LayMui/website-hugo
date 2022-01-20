@@ -1,6 +1,6 @@
 +++
 author = "LayMui"
-title = "Out of the overflow of relationship with God"
+title = "Out of the belly flow river of living water"
 date = "2022-01-20"
 description = "eCharis Term 2 Prayer in ministry training"
 
