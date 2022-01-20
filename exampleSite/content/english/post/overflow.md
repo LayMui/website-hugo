@@ -12,6 +12,8 @@ thumbnail= "images/overflow.jpg"
 
 ## Abide in Him to avoid burnt out
 
+OUT OF THE OVERFLOW OF RELATIONSHIP WITH GOD
+
 When you in this place in communion with God 
 allowing his word and spirit to be in agreement in you
 then how you minister is simply out of he overflow
