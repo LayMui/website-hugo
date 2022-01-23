@@ -27,9 +27,14 @@ John 4:10 the moment where Jesus would have said I AM but he didn't
 He's the living water, symbolic of his identity, his character, his nature and his purpose.
 If you drink of Him you shall never thirst.
 
-God is Spirit and we are created spirit being the real me is the spirit.
-when Jesus uses this symbol to show we need to let His Spirit fill and and satisfy
-my spirit man.
+God is Spirit 
+
+We are created spirit being 
+
+The real me is the spirit.
+
+When Jesus uses this symbol to show 
+I need to let His Spirit fill and and satisfy my spirit man.
 
 Matthew 4:4 man shall not live by (bread) alone but by every word
 
