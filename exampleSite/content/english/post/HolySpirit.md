@@ -55,7 +55,7 @@ Discerning of spirits ot help give counsels and know what their heart is.
 Did you know that all of us the born again believers are capable of doing
 everything Jesus did?
 
-It's all there that potential is in there. 
+It's all there that potential is in there.
 It's just waiting to be released.
 
 The capability is already inside of you 
@@ -71,6 +71,3 @@ That's how Jesus ministered. It was by **love and in that love, the gifts were w
 So the **key to moving in the Spirit is to move in the love of God**
 And as you move in the love of God gifts will just automatically begin to take place
 and there won't be abnormal unusual feelings.
-
-
-
