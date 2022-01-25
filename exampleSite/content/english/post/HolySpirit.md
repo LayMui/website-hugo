@@ -31,14 +31,13 @@ you are likely open yourself up to deception.
 The Holy Spirit does not need any of these. 
 It's invisible transaction by faith.
 
-Those 9 gifts of the Holy Spirit in 1 Cor 12-14 
+Those 9 gifts of the Holy Spirit described in 1 Cor 12-14.
+At new birth, the new believer would have all of these gifts given.
 
 Look at Jesus, when Jesus minister, He doesn't shake or jerk. 
-
 In fact it's those demon possessed that does alot of shaking and jerking.
 
 When someone get into a mystical trance to start to shake and tremble.
-
 There are the poor thing cos they don't know what they are missing.
 Becos the Holy Spirit does not need that!
 
@@ -47,6 +46,8 @@ It's about the other person getting blessed with what you have inside of you.
 And that's where the gifts can set people free, 
 bring healing and deliverance...if we would stop doing the other things.
 
-Words of knowlege to help them know who they are in Christ
+Words of knowlege to help them know who they are in Christ.
+
 Words of wisdom to help them order their lives rightly.
+
 Discernibg of spirits ot help give counsels and know what their heart is.
