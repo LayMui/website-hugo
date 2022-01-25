@@ -11,7 +11,7 @@ thumbnail= "images/dove.jpg"
 
 +++
 
-### John 5:19 Relationship is keuy to flowing in the gift of the Holy Spirit
+### John 5:19 Relationship is key to flowing in the gift of the Holy Spirit
 
 I used to attend a small church group when they believe in the baptism of the fire of the 
 Holy Spirit. 
