@@ -60,4 +60,17 @@ It's just waiting to be released.
 
 The capability is already inside of you 
 but you are the one that has to be motivated 
-by the love of God to step out and touch someone's life.
+by the **love of God** to step out and touch someone's life with the gifts.
+
+**When the love of God is expressed the gifts are there in that flow of love.**
+Rather than waiting to have a sensation or feelings to start minister.
+If you dependent on feelings, it takes you out of the realm of the spirit.
+But when you are in the spirit, 
+it's the love of God that is shed abroad in your heart that is being manifested.
+That's how Jesus ministered. It was by **love and in that love, the gifts were working.
+So the **key to moving in the Spirit is to move in the love of God**
+And as you move in the love of God gifts will just automatically begin to take place
+and there won't be abnormal unusual feelings.
+
+
+
