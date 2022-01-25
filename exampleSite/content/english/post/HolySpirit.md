@@ -34,7 +34,7 @@ It's invisible transaction by faith.
 Those 9 gifts of the Holy Spirit described in 1 Cor 12-14.
 At new birth, the new believer would have all of these gifts given.
 
-Look at Jesus, when Jesus minister, He doesn't shake or jerk. 
+Look at Jesus, when Jesus minister, He doesn't shake or jerk.
 In fact it's those demon possessed that does alot of shaking and jerking.
 
 When someone get into a mystical trance to start to shake and tremble.
