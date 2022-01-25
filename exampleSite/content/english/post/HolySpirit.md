@@ -51,3 +51,13 @@ Words of knowlege to help them know who they are in Christ.
 Words of wisdom to help them order their lives rightly.
 
 Discerning of spirits ot help give counsels and know what their heart is.
+
+Did you know that all of us the born again believers are capable of doing
+everything Jesus did?
+
+It's all there that potential is in there. 
+It's just waiting to be released.
+
+The capability is already inside of you 
+but you are the one that has to be motivated 
+by the love of God to step out and touch someone's life.
