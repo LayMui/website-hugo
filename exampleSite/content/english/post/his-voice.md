@@ -13,7 +13,6 @@ thumbnail= "images/door.jpg"
 
 ### Spirit witness to spirit
 
-
 How do I get familiar with His voice?
 
 By start eating and drinking the Word
