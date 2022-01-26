@@ -21,16 +21,16 @@ And you get into the light and out of darkness
 
 You'll start to hear the **Voice of God**
 
-and that's whe life really get exciting and 
+and that's whe life really get exciting and
 
-you will find yourself in places where you hadn't 
+you will find yourself in places where you hadn't
 
-really thought about before. 
+really thought about before.
 
-And you'll be more satisfied and more fulfilled, 
-more joyful, have peace. 
+And you'll be more satisfied and more fulfilled,
+more joyful, have peace.
 
-And it may be something you never been dreamed of 
+And it may be something you never been dreamed of
 
 but his voice brought you there.
 
