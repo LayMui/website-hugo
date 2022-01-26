@@ -50,4 +50,4 @@ For he satisfied the longing soul and fill the hungry soul with goodness - Psalm
 
 O God, thou art my God; early will I seek thee, my soul thirst for thee - Psalm 63:1
 
-It's the soul and flesh that need to hungry and thirst 
+It's the soul and flesh that need to hungry and thirst
