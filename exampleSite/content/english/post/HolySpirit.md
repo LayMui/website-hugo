@@ -11,8 +11,10 @@ thumbnail= "images/dove.jpg"
 
 +++
 
-### John 5:19 
-###### The Son can do nothing of himself, but whatsoever he see the Father do. 
+### John 5:19
+
+###### The Son can do nothing of himself, but whatsoever he see the Father do.
+
 ###### For what things soever he do, these also do the Son likewise.
 
 Relationship is key to flowing in the gift of the Holy Spirit
