@@ -12,8 +12,7 @@ thumbnail= "images/dove.jpg"
 +++
 
 ### John 5:19 
-###### The Son can do nothing of himself, but whatsoever he see the Father do. 
-###### For what things soever he do, these also do the Son likewise.
+###### The Son can do nothing of himself, but whatsoever he see the Father do. For what things soever he do, these also do the Son likewise.
 
 Relationship is key to flowing in the gift of the Holy Spirit
 
@@ -78,7 +77,7 @@ Rather than waiting to have a sensation or feelings to start minister.
 If you dependent on feelings, it takes you out of the realm of the spirit.
 But when you are in the spirit,
 it's the love of God that is shed abroad in your heart that is being manifested.
-That's how Jesus ministered. It was by \*\*love and in that love, the gifts were working.
+That's how Jesus ministered. It was by love and in that love, the gifts were working.
 So the key to moving in the Spirit is to move in the love of God
 And as you move in the love of God gifts will just automatically begin to take place
 and there won't be abnormal unusual feelings.

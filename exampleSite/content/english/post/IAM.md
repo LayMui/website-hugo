@@ -47,6 +47,7 @@ I am satisfied.
 Blessed are they which do hunger and thirst for righteousness for they shall be filled - Matthew 5:10
 
 For he satisfied the longing soul and fill the hungry soul with goodness - Psalm 107:9
+
 O God, thou art my God; early will I seek thee, my soul thirst for thee - Psalm 63:1
 
 It's the soul and flesh that need to hungry and thirst 
