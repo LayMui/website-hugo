@@ -11,7 +11,7 @@ thumbnail= "images/dove.jpg"
 
 +++
 
-### John 5:19 
+### John 5:19
 
 Relationship is key to flowing in the gift of the Holy Spirit
 
@@ -39,9 +39,9 @@ It's invisible transaction by faith.
 
 Those 9 gifts of the Holy Spirit described in 1 Cor 12-14.
 
-At spiritual rebirth,  the new believer would have all of these gifts.
+At spiritual rebirth, the new believer would have all of these gifts.
 
-Look at Jesus, when Jesus minister, 
+Look at Jesus, when Jesus minister,
 
 He doesn't shake or jerk.
 
@@ -76,7 +76,7 @@ Rather than waiting to have a sensation or feelings to start minister.
 If you dependent on feelings, it takes you out of the realm of the spirit.
 But when you are in the spirit,
 it's the love of God that is shed abroad in your heart that is being manifested.
-That's how Jesus ministered. It was by **love and in that love, the gifts were working.
+That's how Jesus ministered. It was by \*\*love and in that love, the gifts were working.
 So the key to moving in the Spirit is to move in the love of God
 And as you move in the love of God gifts will just automatically begin to take place
 and there won't be abnormal unusual feelings.
