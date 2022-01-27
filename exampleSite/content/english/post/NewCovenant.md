@@ -26,7 +26,8 @@ Grace and Faith thinking.
 
 So it's important to rightly discern and divide the Word of God.
 
-#### Jesus came to fulfil the law so God's next plan can be executed 
+#### Jesus came to fulfil the law so God's next plan can be executed
+
 ### God's next plan is the New Covenant
 
 Jesus is without sin
@@ -34,12 +35,12 @@ so he can fulfil the law perfectly
 
 Man cannot keep the law as they have the sin nature
 
-In Matthew 19:25 it said with man its impossible 
+In Matthew 19:25 it said with man its impossible
 but with God all things are possible
 
 The verse in its context is talking about keeping the law
 
-The issues with Israel is they add in tradition of mens to the pure holy law 
+The issues with Israel is they add in tradition of mens to the pure holy law
 
 and that is why alot of sick pple during Jesus's time
 
@@ -47,13 +48,12 @@ Healing was available under the law the old Covenant
 
 They ate the passover lamb put blood on the door post and none is feeble
 
-
 Jesus inaugurated the new covenant
 
-
 ### Matthew 26:26-28
+
 King James Version
-26 And as they were eating, Jesus took bread, and blessed it, and brake it, 
+26 And as they were eating, Jesus took bread, and blessed it, and brake it,
 
 and gave it to the disciples, and said, Take, eat; this is my body.
 
@@ -65,12 +65,10 @@ Jesus came to fulfil the Law and bring about the new covenant which is God's nex
 
 which we are now in today.
 
-Col 2:14-17  he took away the old
+Col 2:14-17 he took away the old
 
 Colossians 2:14
 King James Version
-14 Blotting out the handwriting of ordinances that was against us, 
+14 Blotting out the handwriting of ordinances that was against us,
 
 which was contrary to us, and took it out of the way, nailing it to his cross;
-
-
