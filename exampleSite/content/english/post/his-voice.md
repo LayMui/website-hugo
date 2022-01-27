@@ -21,7 +21,7 @@ And you get into the light and out of darkness
 
 You'll start to hear the **Voice of God**
 
-and that's whe life really get exciting and
+and that's when life really get exciting and
 
 you will find yourself in places where you hadn't
 
@@ -32,11 +32,11 @@ more joyful, have peace.
 
 And it may be something you never been dreamed of
 
-but his voice brought you there.
+but His voice brought you there.
 
 Because God can see the end from the beginning
 
-John 10:5 Jesus came in by the door legally (thro natural birth)
+John 10:5 Jesus came in by the door legally (through natural birth)
 
 then He became the door for spiritual birth.
 
