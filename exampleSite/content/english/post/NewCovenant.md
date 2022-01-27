@@ -13,19 +13,16 @@ thumbnail= "images/covenant.jpg"
 
 ## Transitional period from Old into the New Covenant
 
-How do you understand why Jesus said in Matthew 5:30
+How do you understand what Jesus said in Matthew 5:30
 
 And if thy right hand offend thee, cut it off, and cast it from thee:
-
 for it is profitable for thee that one of thy members should perish, 
-
 and not that thy whole body should be cast into hell. - Matthew 5:30
 
 How they fit into the **New Covenant** dynamic?
 
 Jesus is transitioning people from Law thinking and Law keeping into
-
-grace and faith thinking.
+Grace and Faith thinking.
 
 So it's important to rightly discern and divide the Word of God.
 
@@ -33,7 +30,6 @@ So it's important to rightly discern and divide the Word of God.
 ### God's next plan is the New Covenant
 
 Jesus is without sin
-
 so he can fulfil the law perfectly
 
 Man cannot keep the law as they have the sin nature
