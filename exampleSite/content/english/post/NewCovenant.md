@@ -33,7 +33,7 @@ So it's important to rightly discern and divide the Word of God.
 Jesus is without sin
 so he can fulfil the law perfectly
 
-Man cannot keep the law as they have the sin nature
+Men cannot keep the law as they have the sin nature
 
 In Matthew 19:25 it said with man its impossible
 but with God all things are possible
@@ -42,11 +42,14 @@ The verse in its context is talking about keeping the law
 
 The issues with Israel is they add in tradition of mens to the pure holy law
 
-and that is why alot of sick pple during Jesus's time
+and that is why alot of sick people during Jesus' time
 
 Healing was available under the law the old Covenant
 
-They ate the passover lamb put blood on the door post and none is feeble
+They ate the passover lamb 
+
+Put blood on the door post and none is feeble
+
 
 Jesus inaugurated the new covenant
 
