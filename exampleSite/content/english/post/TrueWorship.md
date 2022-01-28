@@ -15,7 +15,7 @@ thumbnail= "images/well.jpg"
 
 John 4 Jesus met the Samarithan woman at the well
 
-Jesus revealed to her what is true worship or 
+Jesus revealed to her what is true worship or
 
 the type of worship God is looking for
 
@@ -25,7 +25,7 @@ The Spirit man is perfect
 
 Worship from the spirit man - the real me and inner core of my being
 
-and to know the Truth of His Word cos 
+and to know the Truth of His Word cos
 
 God wants us to walk in total freedom
 
@@ -36,7 +36,7 @@ Worship is Relationship
 This passage reveals to me
 
 1. A woman can worship but a stone cannot
-2. Jesus reached out to a samarithan woman, 
+2. Jesus reached out to a samarithan woman,
 
 one who was despised and unworthy in the eyes of society and culture
 

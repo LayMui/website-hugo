@@ -46,10 +46,9 @@ and that is why alot of sick people during Jesus' time
 
 Healing was available under the law the old Covenant
 
-They ate the passover lamb 
+They ate the passover lamb
 
 Put blood on the door post and none is feeble
-
 
 Jesus inaugurated the new covenant
 
