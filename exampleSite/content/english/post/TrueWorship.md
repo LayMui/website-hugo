@@ -21,7 +21,7 @@ the type of worship God is looking for
 
 It's to worship in Spirit and in Truth
 
-The Spirit man is perfect
+The Spirit man is perfect after receive Christ into the heart.
 
 Worship from the spirit man - the real me and inner core of my being
 
@@ -30,6 +30,8 @@ and to know the Truth of His Word cos
 God wants us to walk in total freedom
 
 freedom from sins and deception.
+
+God is more interested in the heart than outward form.
 
 Worship is Relationship
 
