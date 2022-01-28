@@ -46,7 +46,7 @@ Demon can't deal with truth
 
 They deal with the law
 
-Under the law,  men 's sin increased
+Under the law, men 's sin increased
 
 Sin gives place
 
