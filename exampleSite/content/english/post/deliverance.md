@@ -52,6 +52,6 @@ Sin gives place
 
 Sin is cooperation with the enemy
 
-If u walk in the truth u will not be influenced or oppressed by them
+If you walk in the truth u will not be influenced or oppressed by them
 
 You don't have to go through weird deliverance session to be made free
