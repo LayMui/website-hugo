@@ -16,7 +16,7 @@ thumbnail= "images/covenant.jpg"
 How do you understand what Jesus said in Matthew 5:30
 
 And if thy right hand offend thee, cut it off, and cast it from thee:
-for it is profitable for thee that one of thy members should perish, 
+for it is profitable for thee that one of thy members should perish,
 and not that thy whole body should be cast into hell. - Matthew 5:30
 
 How they fit into the **New Covenant** dynamic?
