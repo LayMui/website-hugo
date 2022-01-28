@@ -20,7 +20,7 @@ The whole concept of demons and Christian is not a subject
 
 They didn't mention christian need deliverance
 
-Realise some thing has taken at the Cross.
+Realise some thing has taken place at the Cross.
 The power of the satan is devastated
 
 So in today church
@@ -46,7 +46,7 @@ Demon can't deal with truth
 
 They deal with the law
 
-Under the law men 's sin increased
+Under the law,  men 's sin increased
 
 Sin gives place
 
