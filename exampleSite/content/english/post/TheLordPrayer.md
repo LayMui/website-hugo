@@ -11,7 +11,7 @@ thumbnail= "images/lord-prayer.jpg"
 
 +++
 
-## The Lord's Prayer 
+## The Lord's Prayer
 
 **is prophetic**. 
 
@@ -27,7 +27,7 @@ Thy kingdom - Jesus revealed a new dispensation
 
 Our daily bread - Jesus revealed a new dependency by faith
 
-2 Cor 9:6-11 He has set into motions a spiritual law 
+2 Cor 9:6-11 He has set into motions a spiritual law
 
 A principle of sowing and reaping.
 
@@ -50,7 +50,7 @@ But God's kind of forgiveness is to forgive from the heart
 
 Temptation - Jesus revealed the source of 'evil'
 
-James 1:13 In this new covenant, 
+James 1:13 In this new covenant,
 
 God can't be tempted with evil nor He tempts any man
 
@@ -61,6 +61,3 @@ it's not from God. It's from the flesh.
 James 4:7. We have authority over the flesh and the devil.
 
 Submit yourself therefore to God, Resist the devil and he will flee from you.
-
-
-
