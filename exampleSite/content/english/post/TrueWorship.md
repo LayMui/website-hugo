@@ -25,11 +25,9 @@ The Spirit man is perfect after receive Christ into the heart.
 
 Worship from the spirit man - the real me and inner core of my being
 
-and to know the Truth of His Word cos
+and to know the Truth of His Word - Jesus
 
-God wants us to walk in total freedom
-
-freedom from sins and deception.
+Jesus is the way, the truth and the life.
 
 God is more interested in the heart than outward form.
 
