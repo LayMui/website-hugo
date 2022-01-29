@@ -13,7 +13,7 @@ thumbnail= "images/lord-prayer.jpg"
 
 ## The Lord's Prayer
 
-**is prophetic**. 
+**is prophetic**.
 
 It is introducing the reality of the Kingdom.
 
@@ -38,7 +38,7 @@ Forgive us as we forgive - Jesus revealed that forgiveness is the key
 If you don't forgive others, you won't be forgiven - He is talking to Jews under the Law
 They are still fulfiling the Law.
 
-We've to be forgiven before we can forgive others 
+We've to be forgiven before we can forgive others
 
 and now we are forgiven we are equipped to forgive others
 
