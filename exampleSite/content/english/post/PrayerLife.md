@@ -30,5 +30,5 @@ You will see blessing accumulating towards them.
 
 They are being reward openly.
 
-Becos' there's saomething that has been sown in secret.
+Becos' there's something that has been sown in secret.
 
