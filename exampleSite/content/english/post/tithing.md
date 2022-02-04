@@ -28,10 +28,7 @@ Malachi 3
 
  The Answer is in Galatians 3
  
- 13 Christ hath redeemed us from the curse of the law, being made a curse for us: for it is written, Cursed is every one that hangeth on a tree:
-
-the Answer is in Galatians 3
-13 Christ hath redeemed us from the curse of the law, being made a curse for us: for it is written, Cursed is every one that hangeth on a tree:
+ 13 Christ hath redeemed us from the curse of the law, being made a curse for us: for it is written, Cursed is every one that hangeth on a tree.
 
 Malachi says you'll be cursed if you don't tithe
 Paul says in Corinthians - only to give with joy!
@@ -40,7 +37,7 @@ Galatians 3:13 says we have been redeemed from 'every' curse.
 
 Malachi 3:8-9 is the OT law
 
-There NT tells us we are not cursed if we don't tithe
+The NT tells us we are not cursed if we don't tithe
 
 Tithe and giving are both biblical principles
 
