@@ -26,6 +26,8 @@ Grace and Faith thinking.
 
 So it's important to rightly discern and divide the Word of God.
 
+Jesus is trying to show them their heart is not perfect so they need a **Saviour**
+
 #### Jesus came to fulfil the law so God's next plan can be executed
 
 ### God's next plan is the New Covenant
