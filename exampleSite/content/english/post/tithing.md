@@ -14,9 +14,11 @@ thumbnail= "images/tithing.jpg"
 ## How can there be harmony between 2 verses
 
 Malachi 3:8-9
+
 2 Corinthians 9:7
 
 Malachi 3
+
 8 Will a man rob God? Yet ye have robbed me. But ye say, Wherein have we robbed thee? In tithes and offerings.
 9 Ye are cursed with a curse: for ye have robbed me, even this whole nation.
 
@@ -24,7 +26,8 @@ Malachi 3
 
  Every man according as he purposeth in his heart, so let him give; not grudgingly, or of necessity: for God loveth a cheerful giver.
 
- the Answer is in Galatians 3
+ The Answer is in Galatians 3
+ 
  13 Christ hath redeemed us from the curse of the law, being made a curse for us: for it is written, Cursed is every one that hangeth on a tree:
 
 
