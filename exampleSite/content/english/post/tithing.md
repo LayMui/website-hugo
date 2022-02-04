@@ -30,7 +30,6 @@ The Answer is in Galatians 3
 
 13 Christ hath redeemed us from the curse of the law, being made a curse for us: for it is written, Cursed is every one that hangeth on a tree.
 
-
 Malachi says you'll be cursed if you don't tithe
 Paul says in Corinthians - only to give with joy!
 
