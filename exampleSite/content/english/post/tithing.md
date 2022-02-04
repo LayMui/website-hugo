@@ -22,11 +22,10 @@ Malachi 3
 
 2 Corinthians 9:7
 
- Every man according as he purposeth in his heart, so let him give; not grudgingly, or of necessity: for God loveth a cheerful giver.
+Every man according as he purposeth in his heart, so let him give; not grudgingly, or of necessity: for God loveth a cheerful giver.
 
- the Answer is in Galatians 3
- 13 Christ hath redeemed us from the curse of the law, being made a curse for us: for it is written, Cursed is every one that hangeth on a tree:
-
+the Answer is in Galatians 3
+13 Christ hath redeemed us from the curse of the law, being made a curse for us: for it is written, Cursed is every one that hangeth on a tree:
 
 Malachi says you'll be cursed if you don't tithe
 Paul says in Corinthians - only to give with joy!
@@ -40,7 +39,6 @@ There NT tells us we are not cursed if we don't tithe
 Tithe and giving are both biblical principles
 
 The 'Tithe' in the NT is only mentioned twice whereas giving is mentioned often.
-
 
 Tithing or 10% is a start as you purpose in your heart and not motivated by law.
 When law is given, tithing become an obligation
@@ -58,5 +56,3 @@ It's the attitude of giving that is more important than the giving.
 A church that doesn't feed it's people is not worth of giving
 
 It does matter where you plant your seed.
-
-
