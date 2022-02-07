@@ -35,3 +35,7 @@ Who are the strong?
 The strong are those who believe the report of the Lord (His Word)
 
 not the doctor's report.
+
+What are the spoil?
+
+Those that the Lord has took back from the enemy. It's freedom from sins, sickness, diseases.
