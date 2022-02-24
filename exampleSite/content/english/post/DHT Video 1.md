@@ -18,10 +18,9 @@ and end up not fulfilling God's will for our lives.
 Why do you call me Lord Lord and not do what I command?
 
 They see God as vending machine
-"If I put in enough time I get what I want, I can ask from God 
+"If I put in enough time I get what I want, I can ask from God
 and He will get me things"
 
 Just knowing the precept of the bible does not make you a Christian
 
 It's those Word you live by.
-
