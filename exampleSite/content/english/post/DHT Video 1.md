@@ -4,10 +4,10 @@ title = "DHT Video 1"
 date = "2022-02-24"
 description = "Christianity"
 tags = [
-    "kingdom of God", "Christianity"
+    "kingdomOfGod", "Christianity"
 ]
 
-faith= "images/crown.jpg"
+kingdomOfGod="images/crown.jpg"
 
 +++
 
