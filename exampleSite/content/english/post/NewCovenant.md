@@ -1,6 +1,6 @@
 +++
 author = "LayMui"
-title = "New Covenant"
+title = "DHT 01 Video"
 date = "2022-01-27"
 description = "eCharis Term 3 The Ministry of Jesus I"
 tags = [
